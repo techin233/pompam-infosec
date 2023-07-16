@@ -1,1 +1,0 @@
-Sorasit Ritthitha
